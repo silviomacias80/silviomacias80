@@ -1,4 +1,4 @@
-### Hi there 👋sou gaucho de porto alegre atualmentw fazendo curso em video html css com gustavo guanabara.contato silviomacias80@gmail.com
+### Hi there 👋sou gaucho de porto alegre atualmente fazendo curso em video html css com gustavo guanabara.contato silviomacias80@gmail.com
 
 
 
